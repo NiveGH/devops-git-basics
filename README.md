@@ -1,0 +1,1 @@
+I'm a software engineer with 4 years of experience. Currently, I'm learning GitHub, Linux...etc..
